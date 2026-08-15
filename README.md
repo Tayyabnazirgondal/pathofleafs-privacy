@@ -72,5 +72,5 @@ app after changes means you accept the updated policy.
 If you have any questions about this Privacy Policy, contact:
 
 **Daynix Studio**  
-Email: [YOUR EMAIL HERE]  
+Email: ghulamhussain657117@gmail.com
 Website: daynixstudio.com
